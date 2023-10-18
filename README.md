@@ -38,7 +38,7 @@ Here are some ideas to get you started:
 
 唯一商务合作电报联系：https://t.me/ls0826
 
-目前正在招人
+目前正在招募各类型精英人士
 
 1.群主兼职推广人员
 
@@ -47,5 +47,7 @@ Here are some ideas to get you started:
 3.吃瓜热点资料寻找人员
 
 4.吃瓜卖片人员
+
+5.招募楼凤/经纪人入驻
 
 请联系唯一电报号：https://t.me/ls0826
