@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 
 免翻入口：ggbl01.com
 
-永久入口：https://ggporn.vip
+永久入口：https://ggbl.cc
 
 官方推特：https://twitter.com/ggcg33
 
